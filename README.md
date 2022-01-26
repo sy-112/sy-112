@@ -6,5 +6,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning app development. 
 - 📫 How to reach me: sbak266@naver.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I like to 
--->
+- ⚡ Fun fact: I also like finance and I like to read.
